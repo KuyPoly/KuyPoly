@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently a sophomore student at CADT<br>
+🔭A strong interest in innovation and building practical digital solutions. I demonstrate leadership through effective communication and cross-functional collaboration to deliver high-quality, user-centered solutions.<br>
 
 
 ## 🌐 Socials:
